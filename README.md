@@ -1,0 +1,1 @@
+# Quick-Tips-For-Salesforce-Associate-Exam-Questions-OCTOBER-2022-
